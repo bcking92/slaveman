@@ -1,5 +1,5 @@
-## I'm The King, I'm your role model!!!@#!@#!@#!@#
+## I'm The King, I'm your role model!
 
 ## start
-- KIM
-- MEOW
+- KIMBYUNGCHEOL
+- LOL
